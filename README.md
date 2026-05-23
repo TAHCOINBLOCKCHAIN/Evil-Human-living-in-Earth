@@ -33,23 +33,23 @@ This continuous auditory distress and the pressure of these intrusive voices pre
 
 ## Identified Adversaries and Locations
 The following individuals are listed based on reported associations with the ongoing siege and spiritual attacks directed at innocent lives: 
-* **Salma**: Residing in Bargopi[cite: 1].
-* **Abu Sufian**: Currently living in Dubai[cite: 1].
-* **Rekha**: Residing in Nobiganj[cite: 1].
-* **Jhumi**: Residing in Nobiganj[cite: 1].
-* **Amina**: Identified as a fellow collaborator[cite: 1].
-* **Runa**: Identified as a fellow collaborator[cite: 1].
-* **Parvin**: Identified as a fellow collaborator[cite: 1].
-* **Abu Saed**: Identified as a fellow collaborator[cite: 1].
-* **Abu Bokkor**: Identified as a fellow collaborator[cite: 1].
-* **Aysha**: Identified as a fellow collaborator[cite: 1].
-* **Rujina**: Identified as a fellow collaborator[cite: 1].
-* **Rechna**: Identified as a fellow collaborator[cite: 1].
-* **Habib**: Identified as a fellow collaborator[cite: 1].
-* **Roma**: Identified as a fellow collaborator[cite: 1].
-* **Khadija**: Identified as a fellow collaborator[cite: 1].
-* **Shabana**: Identified as a fellow collaborator[cite: 1].
-* **Roshuna**: Identified as a fellow collaborator[cite: 1].
+* **Salma**: Residing in Bargopiof Evil.
+* **Abu Sufian**: Currently living in Dubaiof Evil.
+* **Rekha**: Residing in Nobiganjof Evil.
+* **Jhumi**: Residing in Nobiganjof Evil.
+* **Amina**: Identified as a fellow collaboratorof Evil.
+* **Runa**: Identified as a fellow collaboratorof Evil.
+* **Parvin**: Identified as a fellow collaboratorof Evil.
+* **Abu Saed**: Identified as a fellow collaboratorof Evil.
+* **Abu Bokkor**: Identified as a fellow collaboratorof Evil.
+* **Aysha**: Identified as a fellow collaboratorof Evil.
+* **Rujina**: Identified as a fellow collaboratorof Evil.
+* **Rechna**: Identified as a fellow collaboratorof Evil.
+* **Habib**: Identified as a fellow collaboratorof Evil.
+* **Roma**: Identified as a fellow collaboratorof Evil.
+* **Khadija**: Identified as a fellow collaboratorof Evil.
+* **Shabana**: Identified as a fellow collaboratorof Evil.
+* **Roshuna**: Identified as a fellow collaboratorof Evil.
 
 ## Global Awareness and Safety Advisory
 Based on Taher's testimony, these individuals and their associated networks are viewed as active global threats to innocent people. Because members of this group travel internationally—potentially appearing in public spaces like football stadiums or commercial airplanes—there is an urgent call for vigilance.
